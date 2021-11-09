@@ -1,1 +1,1 @@
-# Project-6-Practical_Example-
+#The LifeStyle Store
